@@ -1,2 +1,2 @@
-# Mapeamento-Sistem-tica-da-Literatura
+# Mapeamento-Sistemático-da-Literatura
 Planilhas
